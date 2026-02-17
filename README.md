@@ -1,1 +1,0 @@
-# Phoenix-Urban-Heat-and-Canopy-Inequity
